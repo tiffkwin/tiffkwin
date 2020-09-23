@@ -12,4 +12,3 @@ Sometimes I code and sometimes I explore random new hobbies. Here are some of th
 - 🛠 Woodworking
 - 🥘 Trying out new recipes
 - 🏂 Snowboarding
-- 🍵 Experimenting with tea blends
