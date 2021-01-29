@@ -9,6 +9,5 @@ Sometimes I code and sometimes I explore random new hobbies. Here are some of th
 - 📸 Taking photos on my half frame camera!
 - 🎶 Making Spotify playlists
 - 🎸🎹 Playing guitar and piano
-- 🛠 Woodworking
 - 🥘 Trying out new recipes
 - 🏂 Snowboarding
